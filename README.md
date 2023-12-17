@@ -9,7 +9,7 @@
 - 🖥️ This is my Github Link [Github](https://github.com/Nohgyumin0812)  
   
 
-- 💬 This is my Telegram Link [Telegram](https://github.com/Nohgyumin0812)  
+- 💬 This is my Telegram Link [Telegram](https://t.me/ImundongEdThorp)  
   
 
 - ⚡ Fun fact: I use spaces over tabs  

@@ -5,7 +5,7 @@
   
 
 - 💬 This is my Telegram Link [Telegram](https://t.me/ImundongEdThorp)  
-- 💬 This is my Linkedin Link [Linkedin]([https://t.me/ImundongEdThorp](https://www.linkedin.com/in/%EA%B7%9C%EB%AF%BC-%EB%85%B8-292248255/))  
+- 💬 This is my Linkedin Link [Linkedin](https://www.linkedin.com/in/%EA%B7%9C%EB%AF%BC-%EB%85%B8-292248255/) 
 
 
 - ⚡ Fun fact: I use spaces over tabs  
